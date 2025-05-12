@@ -1,6 +1,6 @@
 </head>
 <body style="font-family: Arial, sans-serif; line-height: 1.6; color: #333; max-width: 800px; margin: auto; padding: 20px;">
-<h1>Get 10% OFF with SALE10 – Use Your Healthy Sol Discount Code Today!</h1>
+<h1>Get 10% OFF with SALE10 – Use Your Health y Sol Discount Code Today!</h1>
 <p>Looking for a Healthy Sol discount code to save on your skincare? You’ve just found it! If you're ready to indulge your skin in the luxurious care it truly deserves, it’s time to discover Healthy Sol Soap — the all-natural, tallow-based soap that nourishes, protects, and transforms your skin.</p>
 <p>From soothing dry patches to restoring your natural glow, Healthy Sol Soap is a game-changer. And now, with our exclusive Healthy Sol discount code: SALE10, you can save 10% on your very first purchase!</p>
 <h2>Why Healthy Sol Soap Should Be Your New Skincare Essential</h2>
